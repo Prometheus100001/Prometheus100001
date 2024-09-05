@@ -5,6 +5,11 @@ share freely
 knowledge is free
 knowledge to know
 
+https://x.com/Pr0m3th3u533?t=_wnZZ1KTDDQLssep6rI5kQ&s=09
+https://www.instagram.com/knowledgetoknow100001?igsh=MTluNmp6azlnNXk0ZA==
+
+
+
 - 👋 Hi, I’m @Prometheus100001
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
